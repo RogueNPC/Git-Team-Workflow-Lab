@@ -22,7 +22,14 @@ The smell of the zoo was intense and alive.
 
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Bill met the Unicorn King who granted him magic powers.
+Although the zoo was majestic, there was one exhibit that was calling for Bill's undivided attention.
+The exhibit had a rainbow formed over the fenced-off area and a team of horses came frolicing inside towards Bill, however there was something strange about the horses: they all had horns sticking out of thier forehead.
+Bill was enamored with the view of those horses in front of him and realized, based on the exibit description plate, that they were, in fact, unicorns.
+It was then that a large horse the size of three unicorns came stomping through from the back of the exibit; it was the Unicorn King!
+The Unicorn King spoke to Bill who granted him magic powers and the ability to taste the rainbow.
+
+Eat Skittles.
+
 The end.
 
 ## Cast
